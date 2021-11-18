@@ -1,1 +1,0 @@
-# ArdaCupHeadv0z7pi
